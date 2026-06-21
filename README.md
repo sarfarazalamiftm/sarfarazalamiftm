@@ -52,6 +52,5 @@ and now India's fast-growing travel-tech platform.
 
 
 💼 LinkedIn
-📧 sarfaraz.alam.iftm@gmail.com
+https://www.linkedin.com/in/sarfaraz-alam-b8491218/
 
-📍 Noida, India
